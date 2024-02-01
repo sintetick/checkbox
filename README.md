@@ -2,8 +2,8 @@
 👔 Student: Pîntea Maxim <br>
 📃 Grupa: InfR-47 <br> <br> 
 
-![Feminin](https://i.imgur.com/oAxC8tZ.png))
-![Masculin](https://i.imgur.com/NblQZgP.png))<br>
+![Masculin](https://i.imgur.com/NblQZgP.png))
+![Feminin](https://i.imgur.com/oAxC8tZ.png))<br>
 
 ![Aplicație](https://i.imgur.com/mhA7fAa.png))<br>
 
